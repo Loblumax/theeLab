@@ -7,6 +7,6 @@
 <br><br>
 
 
-- Hot coffee 🥤	- Works like hell always😉
+- Hot coffee 🥤	- Works like hell yah😉
 <img src="https://user-images.githubusercontent.com/74038190/216644487-64767dbf-3ffd-4a5a-bb44-88f07ea5a31c.gif" width="400">	<img src="https://user-images.githubusercontent.com/74038190/216644487-64767dbf-3ffd-4a5a-bb44-88f07ea5a31c.gif" width="400">
 <br><br>	<br><br>
